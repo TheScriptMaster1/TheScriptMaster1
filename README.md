@@ -1,0 +1,3 @@
+- 👋 Hello! I’m ScriptMaster aka hackedman
+- 👀 Creator of ScriptMaster Hub & Lead Developer 4 Zyer Hub
+- 📫 How to reach me: hackedman#9917 on discord
